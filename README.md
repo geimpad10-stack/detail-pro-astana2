@@ -1,0 +1,1 @@
+# detail-pro-astana2
